@@ -1,0 +1,1 @@
+# hadejkde.cz
